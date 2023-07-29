@@ -7,3 +7,5 @@
 >*-Весёлый;*
 
 >*-Скромный.*
+
+![oW_CoTd7YhQ](https://github.com/8DeF8/HI_HI_HI/assets/139868647/b2980fea-82b1-42a4-b013-46c6770d607d)
